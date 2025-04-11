@@ -9,7 +9,7 @@ I'm Dr. Erin Masters — an Assistant Professor of Accounting at Northern Kentuc
 - 💬 **Ask me about:** Accounting pedagogy, AI in education, experiential learning in business, or how to bring social context and class awareness into the accounting classroom.
 - 📫 **How to reach me:** masterse1@nku.edu or here on github
 - 😄 **Pronouns:** she/they
-- ⚡** Fun fact:**  I moonlight as a potter and a punk fan — and I still think teaching accounting is the most subversive thing I do.
+- ⚡**Fun fact:**  I moonlight as a potter and a punk/post-punk fan — and I still think teaching accounting is the most subversive thing I do.
 
 Let’s connect and explore what’s possible at the intersection of education, technology, and accounting.
 
